@@ -4,9 +4,9 @@
 - **Company Name:** Golden House
 - **Directory:** golden_house
 - **Address/Contact:** 
-  - Soci�t� de m�dias/d�actualit�s
+  - Société de médias/déactualitéés
   - 
-  - Ngoa ekell� (Chateaux), Yaound�, Cameroon
+  - Ngoa ekellé (Chateaux), Yaoundé, Cameroon
   - 
   - +237 6 75 24 77 87
 - **Description:** 
